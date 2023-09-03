@@ -1,1 +1,0 @@
-# E_DADOS_TEMP
